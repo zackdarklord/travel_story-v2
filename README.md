@@ -1,2 +1,3 @@
 # travel_story-v2
 
+![125308743_491135198440861_5412097333753606171_n](https://user-images.githubusercontent.com/61380280/216625144-b827d9f6-a8ae-4a9c-a2c6-75b670b074d5.png)
